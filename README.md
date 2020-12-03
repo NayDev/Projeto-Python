@@ -9,12 +9,7 @@ Professor Orientador: Fernando Masanori
 Motivação:
 
 
-Alunas:
-
-Nayara Lopes
-
-Danielle Brito 
-
+Alunas: Nayara Lopes e Danielle Brito 
 
 Dados:
 Disponível em https://www.tse.jus.br/hotsites/pesquisas-eleitorais/candidatos.html
